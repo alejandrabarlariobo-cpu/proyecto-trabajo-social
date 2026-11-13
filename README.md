@@ -12,3 +12,4 @@ Objetivos
 	1.	Analizar el discurso sobre la adopción que publican personas adoptadas adultas en TikTok e Instagram.
 	2.	Identificar los temas principales y las necesidades de apoyo que expresan.
 	3.	Proponer recomendaciones para la intervención del trabajador social con personas adoptadas y familias adoptivas.
+	MIGUEL SE VA A TIRAR POR LA VENTANA
